@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Artin1586
+- 👀 I’m interested in Hacking and python programming
+- 🌱 I’m currently learning linux and hacking
+- 📫 How to reach me:
+- Phone num = +989213493501
+- Email = artin.salahi@gmail.com
